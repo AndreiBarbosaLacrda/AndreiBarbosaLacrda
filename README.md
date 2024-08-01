@@ -2,7 +2,7 @@
 - 👀 I’m interested in Lemon
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on Cia
-- 📫 How to reach me id don´t know
+- 📫 How to reach me i don´t know
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love lemon
 
